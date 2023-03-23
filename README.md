@@ -1,6 +1,6 @@
 # Pramukhraj Dhol Pathak
 Click On this link for preview👉
-https://viraj7066.github.io/Pramukhraj/
+https://viraj7066.github.io/Pramukhraj-2.0/
 
 
 
